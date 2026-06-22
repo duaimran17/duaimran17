@@ -1,5 +1,5 @@
 # 💫 About Me:
-AI & Frontend Developer | Python • SQL • React.js • Blender<br>
+BSCS | AI & Frontend Developer | Lead Acquisition Specialist @TechNodes | Joint Secretary @IEEE UCP | Python • SQL • React.js • Blender<br>
 
 
 ## 🌐 Socials:
